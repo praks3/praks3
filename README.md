@@ -1,4 +1,5 @@
-![ezgif com-optimize](https://github.com/praks3/praks3/assets/64420033/b1d2f0db-6da2-4ec5-ab34-a99f9243c4b1)
+![ezgif com-optimize](https://github.com/praks3/praks3/assets/64420033/4252ea26-5e2b-414c-9cb9-27ec14b2993d)
+
 #
 # Hi there! 👋
 
